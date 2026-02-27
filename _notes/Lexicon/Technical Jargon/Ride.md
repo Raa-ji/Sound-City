@@ -1,0 +1,3 @@
+An experience captured on a [[SCRI Module]]. While there are many altruistic and legal uses for these recordings (they are very popular in professional training programs and more expensive private education), they are also very popular for entertainment uses. Rides featuring extreme sports, life-and-death situations, and of course sexual experiences, all have high demand.
+
+There is also a very strong black market for Rides that allow one to relive an experience that they would otherwise be unable or unwilling to have themselves in [[The Real]]. Rides featuring perverse sexual experiences, extremely violent behaviors, and other illegal activities are all available on the black market for the right price.
