@@ -8,6 +8,7 @@ permalink: /
 # Welcome to Sound City.
 
 <blockquote class="imgur-embed-pub" lang="en" data-id="8itBD6s"><a href="https://imgur.com/8itBD6s">View post on imgur.com</a></blockquote><script async src="//s.imgur.com/min/embed.js" charset="utf-8"></script> 
+Thanks to Ginny for providing the voice-over!
 
 <p style="padding: 3em 1em; background: #f5f7ff; border-radius: 4px;">
   Take a look at <span style="font-weight: bold">[[Your first note]]</span> to get started on your exploration.
